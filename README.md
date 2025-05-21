@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **simapeter85@gmail.com**
 
-- ⚡ Fun fact **I love to dance, I love music. I love coffee**
+- ⚡ Fun fact **I'm a gym enthusiast. I love coffee**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
